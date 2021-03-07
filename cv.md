@@ -24,6 +24,9 @@ I would like to find a job in _IT-sphere_
 **Beltyretorg**
 1. Accountant                                                           December 2016 - February 2018
 2. Assistant Chief Accountant                                           March 2018 - February 2021
+
 #Additional Information
+
 Languages: English (A2)
+
 Hobbies: Swimming, valleyball, badminton; *travellings & new places*
